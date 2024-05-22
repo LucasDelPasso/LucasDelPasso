@@ -12,4 +12,4 @@ meu nome e lucas Del Passo
 
 @lucas del passo
 
-![](https://media1.tenor.com/m/nk99deZJoiEAAAAd/giddy-up-cowgirl.gif)
+![](https://media1.tenor.com/m/M28y2LcXzP0AAAAd/catching-cow-tyler-kijac.gif)
